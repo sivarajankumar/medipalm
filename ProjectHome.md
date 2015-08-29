@@ -1,0 +1,1 @@
+its a new hospital management system that stands tall in the market due to its easy configuration and optimized  navigation capabilities and user satisfaction is our prime focus.
